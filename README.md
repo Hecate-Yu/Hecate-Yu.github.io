@@ -1,8 +1,11 @@
 # YanjunYu.github.io
 YanjunYu's Homepage
+
 ## Here's Yanjun  
 An undergraduate student exploring [Computational Sociology and Computational Economics] at University of International Business and Economics.  
 
+## My Resume Page
+[My Resume Page](https://hecate-yu.github.io "Click to visit my resume page.")
 
 ## 🎯 About Me  
 - 👨‍🎓 **Current Role**: Bachelor’s Degree Candidate at UIBE
