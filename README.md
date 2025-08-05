@@ -6,7 +6,9 @@ An undergraduate student exploring [Computational Sociology and Computational Ec
 
 ## 🎯 About Me  
 - 👨‍🎓 **Current Role**: Bachelor’s Degree Candidate at UIBE  
-  <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/f4f3c4df-d9f0-4bd5-b94b-60d9513019c8" />  
+  <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/f4f3c4df-d9f0-4bd5-b94b-60d9513019c8" />
+  <img width="102.4" height="38.2" alt="business_20250805131339" src="https://github.com/user-attachments/assets/e1e97b98-3143-4d40-a6fd-c79236a5557b" />
+
 - 🌱 **Undergraduate Major**: Entrepreneurship Management
 - 🔭 **Focus Areas**: Computational Sociology, Computational Economics  
 - ✨ **Personal Interest**: Movies(a Marvel fan!), Film editing, Photographing
