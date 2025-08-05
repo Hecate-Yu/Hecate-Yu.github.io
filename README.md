@@ -27,6 +27,6 @@ An undergraduate student exploring [Computational Sociology and Computational Ec
 - 🏞️ I'm also fond of **phtograpning**, and still learning it now.
   And here're some of my works (Hope they're not that bad.)!
   
-  <img width="450" height="300" alt="album_20250805130545" src="https://github.com/user-attachments/assets/19a074c0-ac6c-40c9-b9b7-f352b0b359e9" />
+  <img width="600" height="400" alt="album_20250805130545" src="https://github.com/user-attachments/assets/19a074c0-ac6c-40c9-b9b7-f352b0b359e9" />
 
 
