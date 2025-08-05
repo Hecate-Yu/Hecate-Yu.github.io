@@ -24,7 +24,7 @@ An undergraduate student exploring [Computational Sociology and Computational Ec
   🔗[Hecate's RedNote Homepage](https://www.xiaohongshu.com/user/profile/5d5676780000000001005b3b)  
   (Yeah you can see that I'm somehow crazy about the actor Sebastian Stan and his character, Bucky Barnes🦾, in MCU. Hope that's OK for you😊.)  
   ❤️‍🔥 If we have the same taste, welcome to follow my channel!   
-- 🏞️ I'm also fond of **phtograpning**, and still learning it now.
+- 🏞️ I'm also fond of **phtograpning**, and still learning it now.  
   And here're some of my works (Hope they're not that bad.)!
   
   <img width="600" height="400" alt="album_20250805130545" src="https://github.com/user-attachments/assets/19a074c0-ac6c-40c9-b9b7-f352b0b359e9" />
