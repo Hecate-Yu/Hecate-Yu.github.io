@@ -24,7 +24,7 @@ An undergraduate student exploring [Computational Sociology and Computational Ec
 
 ## 🙌 A Show of Myself !  
 - 🎞️ As I said I'm a big fan of movies (especially from MCU) and a **film editing lover**.  
-  ↓ So here's a link of my RedNote address, and you can see all my editing works and reletive photos.  
+  ↓ So here's a link of my RedNote address, and you can view all my editing works and reletive photos.  
   🔗[Hecate's RedNote Homepage](https://www.xiaohongshu.com/user/profile/5d5676780000000001005b3b)  
   (Yeah you can see that I'm somehow crazy about the actor Sebastian Stan and his character, Bucky Barnes🦾, in MCU. Hope that's OK for you😊.)  
   ❤️‍🔥 If we have the same taste, welcome to follow my channel!   
